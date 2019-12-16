@@ -1,2 +1,2 @@
 # 9b
-mirishat ti krakata
+mirishat ti krakata i guza sushto
